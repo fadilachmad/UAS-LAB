@@ -7,4 +7,4 @@
 
 
 # Video
-https://drive.google.com/drive/folders/13LwNEoyejgV3xsnZLmVrlj7CrHMPuHA8?usp=sharing
+https://drive.google.com/file/d/1-odugqICvM1i10iIeZLhVp8jKqxiYT4f/view?usp=sharing
